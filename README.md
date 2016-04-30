@@ -19,3 +19,7 @@
 ## Cookies
 
 * [Perfect chocolate chip cookies](http://www.americastestkitchen.com/recipes/4737-perfect-chocolate-chip-cookies)
+
+## carousel
+
+* [The Truth About Cast Iron Pans: 7 Myths That Need To Go Away](http://www.seriouseats.com/2014/11/the-truth-about-cast-iron.html)
