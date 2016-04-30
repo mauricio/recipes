@@ -8,6 +8,10 @@
 
 * [Slow cooker chicken thighs - many options](http://www.enkivillage.com/slow-cooker-chicken-thighs.html)
 
+## Fish
+
+* [Bacalhau a Gomes de Sá](http://www.saborintenso.com/f17/bacalhau-gomes-sa-280/)
+
 ## Cakes
 
 * [ Orange chips cake ](http://allrecipes.com/recipe/8302/banana-chocolate-chip-cake/?internalSource=hn_carousel%2002_Banana%20Chocolate%20Chip%20Cake&referringId=15827&referringContentType=recipe%20hub&referringPosition=carousel%2002)
@@ -20,6 +24,6 @@
 
 * [Perfect chocolate chip cookies](http://www.americastestkitchen.com/recipes/4737-perfect-chocolate-chip-cookies)
 
-## carousel
+## Caring
 
 * [The Truth About Cast Iron Pans: 7 Myths That Need To Go Away](http://www.seriouseats.com/2014/11/the-truth-about-cast-iron.html)
