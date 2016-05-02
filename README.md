@@ -1,5 +1,9 @@
 # Recipes
 
+## Chicken
+
+* [4 Slow Cooker Chicken Thighs recipes](http://www.enkivillage.com/slow-cooker-chicken-thighs.html)
+
 ## Coffee
 
 * [Quick and easy iced coffee](https://counterculturecoffee.com/learn/quick-easy-iced-coffee)
