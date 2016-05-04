@@ -28,6 +28,16 @@
 
 * [Perfect chocolate chip cookies](http://www.americastestkitchen.com/recipes/4737-perfect-chocolate-chip-cookies)
 
+## Fudges
+
+### Oreo and dark chocolate Fudges
+
+* 400g de chocolate meio amargo picado
+* 395g de leite condensado
+* bota numa tigela, 2mins no microondas, tira e mistura com uma colher até ficar parecendo um chocolate cremoso
+* pega um pacote de oreo, quebra na mão mesmo em pedaços pequenos, mistura com o chocolate
+poe numa forma com papel manteiga, refrigera por 3 horas
+
 ## Caring
 
 * [The Truth About Cast Iron Pans: 7 Myths That Need To Go Away](http://www.seriouseats.com/2014/11/the-truth-about-cast-iron.html)
