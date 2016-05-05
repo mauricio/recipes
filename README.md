@@ -18,7 +18,8 @@
 
 ## Cakes
 
-* [ Orange chips cake ](http://allrecipes.com/recipe/8302/banana-chocolate-chip-cake/?internalSource=hn_carousel%2002_Banana%20Chocolate%20Chip%20Cake&referringId=15827&referringContentType=recipe%20hub&referringPosition=carousel%2002)
+* [ Banana and chocolate chips cake ](http://allrecipes.com/recipe/8302/banana-chocolate-chip-cake/?internalSource=hn_carousel%2002_Banana%20Chocolate%20Chip%20Cake&referringId=15827&referringContentType=recipe%20hub&referringPosition=carousel%2002)
+* [Bolo de noiva](http://receitas.folha.com.br/receita/2412)
 
 ## German
 
