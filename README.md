@@ -25,11 +25,11 @@
 
 * [Ultimate beef stroganoff - Serious Eats](http://www.seriouseats.com/recipes/2015/01/ultimate-beef-stroganof-recipe.html)
 
-## Cookies
+## Sweets
 
 * [Perfect chocolate chip cookies](http://www.americastestkitchen.com/recipes/4737-perfect-chocolate-chip-cookies)
-
-## Fudges
+* [Occhio di bue - Olho de boi em PT](https://www.youtube.com/watch?v=JBQDUSB5iRc&feature=youtu.be)
+* [Occhio di Bue - Italian recipe](http://ricette.giallozafferano.it/Occhio-di-bue.html)
 
 ### Oreo and dark chocolate Fudges
 
