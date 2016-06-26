@@ -31,6 +31,23 @@
 * [Occhio di bue - Olho de boi em PT](https://www.youtube.com/watch?v=JBQDUSB5iRc&feature=youtu.be)
 * [Occhio di Bue - Italian recipe](http://ricette.giallozafferano.it/Occhio-di-bue.html)
 
+### Occhio di Bue
+
+#### Ingredients
+
+* 500g flour
+* 250g unsalted butter, cold
+* 200g  confectioner's sugar
+* 4 egg yolks
+* 1 teaspoon of vanilla
+
+#### Steps
+
+To a container (or mixer bowl) add flour then butter. Mix until there are no butter spots visible.
+Add confectioner's sugar, vanilla, yolks and mix until it hardens. Mix manually now and cut in two or four parts.
+
+Turn on the oven at 200C or 395F. Leave the dough in fridge for half an hour then bring back and cut, send to the oven in batches for 15 minutes or until they're golden.
+
 ### Oreo and dark chocolate Fudges
 
 * 400g de chocolate meio amargo picado
