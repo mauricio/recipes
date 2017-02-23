@@ -16,6 +16,10 @@
 
 * [Bacalhau a Gomes de Sá](http://www.saborintenso.com/f17/bacalhau-gomes-sa-280/)
 
+## Shellfish
+
+* [Bobó de camarão](https://www.facebook.com/tastemadebr/videos/1317538108339405/)
+
 ## Cakes
 
 * [ Banana and chocolate chips cake ](http://allrecipes.com/recipe/8302/banana-chocolate-chip-cake/?internalSource=hn_carousel%2002_Banana%20Chocolate%20Chip%20Cake&referringId=15827&referringContentType=recipe%20hub&referringPosition=carousel%2002)
@@ -59,3 +63,8 @@ poe numa forma com papel manteiga, refrigera por 3 horas
 ## Caring
 
 * [The Truth About Cast Iron Pans: 7 Myths That Need To Go Away](http://www.seriouseats.com/2014/11/the-truth-about-cast-iron.html)
+
+## Youtubers
+
+* [10 youtubers que vão salvar sua vida na cozinha
+](http://mdemulher.abril.com.br/gastronomia/10-youtubers-que-vao-salvar-sua-vida-na-cozinha/)
