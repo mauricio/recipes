@@ -14,7 +14,7 @@
 - 4 oz. pastured chicken livers
 - 2 pounds grass-fed beef
 
-##Instructions
+## Instructions
 
 1. Heat a deep pot over medium heat. Add olive oil, garlic and onion. Stir until translucent.
 2. While the onions cook, add the liver to a small food processor or Magic Bullet. Puree and set aside.
