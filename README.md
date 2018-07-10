@@ -32,6 +32,7 @@
 ## Low Carb
 
 * [Grain Free Nut Free Low Carb Pizza](https://www.sugarfreemom.com/recipes/grain-free-nut-free-low-carb-pizza/)
+* [Paleo chocolate chip cookies](https://www.texanerin.com/perfect-paleo-chocolate-chip-cookies/)
 
 ## Sweets
 
