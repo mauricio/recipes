@@ -65,6 +65,31 @@ Turn on the oven at 200C or 395F. Leave the dough in fridge for half an hour the
 * pega um pacote de oreo, quebra na mão mesmo em pedaços pequenos, mistura com o chocolate
 poe numa forma com papel manteiga, refrigera por 3 horas
 
+### Alfajores
+
+#### Ingredients
+
+* 100g of butter
+* 60g of refined sugar
+* 2 yolks
+* 120g of corn starch
+* 105g of flour
+* 1 tsp of baking powder
+* 1/2 tsp of baking soda
+* 1 pinch of salt
+
+#### Steps
+
+* Throroughly mix sugar and butter until it's a homogeneus paste;
+* Add the two yolks and mix again;
+* At another bowl, mix the corn starch, flour, baking soda and salt;
+* Mix flour into the sugar/butter/yolk mixture;
+* When the mix is homogeneous spread it between two sheets of parchment paper with 0.5cm of height;
+* Leave in the fridge for 2 hours;
+* Turn the oven to 360F;
+* Cut the mix into circles, any size you'd like then bake them for 12 to 17 minutes, until their borders are golden;
+* Remove it from the baking sheet so they can cool quickly, once cool, add nutella/dulce de leche, dip it's border into some shreded coconut and then spread some confectioner's sugar on it;
+
 ## Caring
 
 * [The Truth About Cast Iron Pans: 7 Myths That Need To Go Away](http://www.seriouseats.com/2014/11/the-truth-about-cast-iron.html)
