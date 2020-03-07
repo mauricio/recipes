@@ -105,18 +105,18 @@ poe numa forma com papel manteiga, refrigera por 3 horas
 
 ## Cakes
 
-### Bolo baêta
+### Bolo baêta/Luiz Felipe
 
-RECEITA:
-BOLO LUIZ FELIPE 
-03 OVOS
-01 LATA DE LEITE CONDENSADO (395g)
-200ml LEITE DE COO
-200ml LEITE INTEGRAL
-200g QUEIJO PARMESÃO RALADO
-100g AÇÚCAR
-200g MANTEIGA 
-200g FARINHA DE TRIGO
+Ingredients
+
+03 ovos
+01 lata de leite condensado (395g)
+200 ml leite de coco
+200ml leite integral
+200g queijo parmesão ralado
+100g açucar
+200g manteiga 
+200g farinha de trigo
 
 MODO DE PREPARO:
 LEVE TODOS OS INGREDIENTES PARA BATER NO LIQUIDIFICADOR E FIQUE HOMOGÊNEO.
