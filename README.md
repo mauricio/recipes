@@ -102,3 +102,7 @@ poe numa forma com papel manteiga, refrigera por 3 horas
 ## Cheeses
 
 * [Queijo de manteiga][http://www.receitaculo.com/receita/21209]
+
+## Cakes
+
+* [Bolo baêta/Luiz felipe](https://www.youtube.com/watch?v=bAtofEGCMy4)
